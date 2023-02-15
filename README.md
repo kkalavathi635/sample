@@ -1,4 +1,4 @@
-java is aweson too difficulty
+java is aweson and too difficulty
 
 
 
